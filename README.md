@@ -6,7 +6,7 @@ QHEIRFBN SFGSUERIWERDB   FDKHSEFWEI
 
 shubhashish is lazy
 
-no he is not he is very hardworking handsome guy he is mad
+no he is not he is very not hardworking guy he is mad
 
 segreuryir wr wua getheurti shfnbsguiyetu hgfjdgsskhgb,vmnghjkjhdhfjgkl 
 main ko change
